@@ -1,0 +1,16 @@
+---
+layout: post
+title:  "Where can you find your soulmate?"
+date:   2019-02-25 02:42:54 +0800
+
+---
+
+![hello](/images/blog2.jpg)
+
+Straddling my whole life in search of this one person that would be destined to be regarded as soulmate. The dictionary says that the person should “ideally suit” and most of the writers dearly entangle the testament of the word around the person who could make you the happiest and could complete you. 
+
+In this cogitation and being immensely preoccupied with the notion of finding one accidentally. Maybe somewhere down the road as it is shown in the movies, somewhere in the tuition classes that I looked forward as an event to meet new people from different schools, or that new boy in that section or maybe a friend that I now talk to a little more or maybe the boy that I’m currently crushing over or a person who will eventually join this journey! Because oh destiny! You really make us dream of a distant reality painted by a little imagination and almost expecting a little surprise out of it. A plan that we have in our heads, but obviously would want it’s course of action to be taken bit by bit along the secret route. 
+
+Immersed in these thoughts, my head today entered a different path. Maybe soulmate is not someone to be found in an extraordinary manner or someone with the ideal completeness. Maybe we all are surrounded by various soulmates, everyone as a different piece of various puzzles. But each piece, fitting somewhere in somebody’s puzzle.
+
+You know how while playing puzzles, piling up on my anxiety since childhood, fascinated with puzzles but always a little unhappy that how precisely I want each piece to fit in and the picture to sit on a proper plane. The proper plane might please my little obsessions. But I surely discovered a big answer, how the puzzle even when it is complete, the surface still has it ups and downs. Each piece still has it boundaries, certain boundaries sticking onto each other perfectly and certain just trying to fit in. Each piece trying to make it all a little complete. A complete that I now furnish with minute gaps, various pieces, ill-defined boundaries but a picture so brave that it leaves a sense of completeness. What if soulmate was not the person who was complete, but a person who makes you feel a little more of each thing, who conducts your heart to bang the loudest, a friend who tries to make you laugh a little lounder, a person who is time zones away but is still attentive, a person who is making an effort to mend a bond, a person who is dragging you out of the cellar of thoughts you locked yourself in, the person who gave you last slice or pizza or the last part of cornetto. And maybe you will not find all of it in one single person, and maybe, just maybe, soulmates were never meant that way. Maybe soulmates were the people that you keep discovering each day and leaving a little of your soul in each of them and they in return keep it alive. Maybe in the big picture, my dear. You’ve been surrounded with many. And maybe the whole picture seems little incomplete. But what’s the fascination about puzzles? If you don’t discover each piece in it’s own time and find a place for it to fit. Give it a look around or call the soulmate that you just remembered.
